@@ -1,4 +1,4 @@
-#  
+#  Experience bedwars like never before with top bedwars Script, the #1 Script. Includes speed and auto-heal for unbeatable performance.
 
 
 
